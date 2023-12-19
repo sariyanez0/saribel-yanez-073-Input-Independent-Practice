@@ -1,1 +1,0 @@
-# saribel-yanez-073-Input-Independent-Practice
